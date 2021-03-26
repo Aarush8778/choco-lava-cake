@@ -1,0 +1,2 @@
+A classic chocolate lava cake made with five simple ingredients. So decadent, you just can't say no! 
+Cut into this delightful nugget and watch that stream of warm sweet chocolate ooze out, only to be captured by your spoon!
